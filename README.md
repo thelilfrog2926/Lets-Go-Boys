@@ -6,4 +6,4 @@
 [https://youtube.com]
 [https://youtube.cuzangaming.us]
 [https://discord.gg]
-[https://okeh1234.vercel.app]
+[https://wallpaper-home-production-379b.up.railway.app↗]
