@@ -5,5 +5,5 @@
 [https://replit.com]
 [https://youtube.com]
 [https://youtube.cuzangaming.us]
-[https://
+[https://discord.gg]
 [https://
