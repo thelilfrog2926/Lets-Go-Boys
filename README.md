@@ -4,6 +4,5 @@
 [https://xbox.com/play]
 [https://replit.com]
 [https://youtube.com]
-[https://youtube.cuzangaming.us]
+[https://holyunblocker.org]
 [https://discord.gg]
-[https://wallpaper-home-production-379b.up.railway.app↗]
