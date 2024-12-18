@@ -4,7 +4,7 @@ Yeeeeeeee
 [https://spotify.com]
 [https://roblox.com]
 [https://xbox.com/play]
-[https://
+[https://replit.com]
 [https://
 [https://
 [https://
