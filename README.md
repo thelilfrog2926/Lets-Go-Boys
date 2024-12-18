@@ -4,6 +4,6 @@
 [https://xbox.com/play]
 [https://replit.com]
 [https://youtube.com]
-[https://oil-me-up-diddy.windmills-travel.com]
+[https://youtube.cuzangaming.us]
 [https://
 [https://
