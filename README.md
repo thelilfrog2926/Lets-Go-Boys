@@ -44,3 +44,4 @@
 [https://buy.pristytools.com/]
 [https://youtube.com]
 [https://whackylightbulb.org]
+[https://nirbytes.com/post/1000-proxies-for-school-chromebook-2024]
